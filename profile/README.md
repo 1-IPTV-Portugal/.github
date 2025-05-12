@@ -1,5 +1,8 @@
 # IPTV Portugal: Como Funciona e Quais os Benefícios para os Portugueses
 
+# 👉 [Assine Já IPTV](https://pt.iptvportugal.pt/)
+
+# 👉 [Assine Já IPTV](https://pt.iptvportugal.pt/)
 
 
 ## Introdução
